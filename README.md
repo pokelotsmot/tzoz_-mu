@@ -22,4 +22,8 @@ kind enuff to share their solution.
 
 ![solarized dualmode](https://github.com/p0kelotsmot/images/blob/main/image-25.JPG)
 
+![solarized dualmode](https://github.com/p0kelotsmot/_shit/blob/comptia/ss1.png)
+
+![solarized dualmode](https://github.com/p0kelotsmot/_shit/blob/comptia/ss2.png)
+
  
